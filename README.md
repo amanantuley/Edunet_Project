@@ -91,7 +91,7 @@ Edunet_Project/
 
 **Aman Antuley**
 AICTE Intern @ Edunet Foundation
-📧 [amanantuley@gmail.com](mailto:amanantuley@gmail.com)
+📧 [amanantuley@gmail.com](mailto:amanantuley3794@gmail.com)
 🔗 [LinkedIn](https://linkedin.com/in/amanantuley) | [Twitter](https://twitter.com/amanantuley)
 
 ---
